@@ -31,3 +31,10 @@ Inactive status users:
 	Lyn0123!
 
 
+
+GROUP MEMBERS:
+Jan Nino Baoc
+Jovie Bendijo
+J.Marie Cartalla
+Shobi Umaran
+
